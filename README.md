@@ -1,1 +1,0 @@
-# jeanpauldemorizi-messagepoint.github.io
